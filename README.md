@@ -1,0 +1,2 @@
+# premium-wire-set-001-precious-wire-setting-and-burn
+Stop guessing your burnishing pressure — one uneven pass can warp your precious wire and cost you hours of rework.  The Precious Wire Setting and Burnishing Pressure Log eliminates the trial-and-error of wire setting by giving you a structured system to record, replicate, and refine your pressure for each wire gauge and metal type. Instead of relyi
